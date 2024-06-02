@@ -1,4 +1,0 @@
-# Things
-# Things
-# Time
-# Term
